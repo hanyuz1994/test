@@ -1,7 +1,8 @@
         漂洋过海来看你
 
 	                    added by zhanghanyu
-
+								2017/10/19
+								农历八月三十
 I spent half year’s savings sailing to see you
 For which
 I practiced every breath repeatedly
